@@ -1,4 +1,4 @@
-# Provozierendes Content-Marketing als Werkzeug für Unternehmenserfolg? 
+# Provozierendes Content-Marketing als Werkzeug für Unternehmenserfolg?
 
 ![Pferde](01.jpeg)
 
