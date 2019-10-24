@@ -1,6 +1,8 @@
-# Provozierendes Content-Marketing als Werkzeug für Unternehmenserfolg?
+# Ist ein gewagtes und provozierendes Content-Marketing das richtige Werkzeug, um Aufmerksamkeit und Unternehmenserfolg erzielen zu können?
 
 ![Pferde](01.jpeg)
+
+![truefruits](truefruits1.jpg)
 
 # Einleitung
 
@@ -37,7 +39,7 @@ Bei der Erarbeitung einer Content Strategie ist es von Vorteil, zuerst den Kunde
 Das Content-RADAR Modell von Mirko Lange hilft dabei, den Fokus auf eine der vier Nutzen-Erlebnisse der Zielperson zu setzen. Wodurch das Unternehmen, in einem der Bereiche führender Anbieter durch überdurchschnittlichen guten Content, eine maximale Wirkung erzeugen kann.
 Die Matrix besteht, wie in Abbildung 1 zu sehen, aus vier Feldern. Davon wird die Matrix in zwei Achsen in vordergründig vs. tiefgründig und in funktional vs. emotional aufgeteilt. In der ersten Matrix siedelt sich wenig Tiefgang aber dafür hohe Funktionalität, durch aktuelle Trends an. Begleitet durch Social Media Auftritte mit knappen und kurzen Inhalten versehen. Wissen und Lernen bilden den zweiten Teil der Matrix, wo viel Tiefgang und auch hohe Funktionalität wieder zu finden ist. Die Zielperson soll etwas dazu lernen und verstehen, durch die hohe Zeitinvestition kann es zu einer Geschäftsbeziehung kommen. Im nächste Abschnitt stehen Unterhaltung und Spaß für wenig Tiefgang, dafür aber eine kurzfristige emotionale Unterhaltung. Eingesetzt werden kuriose Bilder, Witze aber auch Sinnessprüche und Videos. Die letzte Matrixspalte definiert die Beziehung und den Sinn, wobei Tiefgang und Emotionalität hervorgerufen werden. Hier soll die Zielperson besonders emotional ergriffen werden und sich identifizieren können, um ein Fan von dem Unternehmen zu werden (Heinrich, 2017, S. 67-100).
 
-! [Modell](jpeg2.0.png)
+![Modell](jpeg2.0.png)
 
 # Beispiel: True Fruits
 
@@ -66,4 +68,4 @@ O.V. (2018). True Fruits verkauft Anteile an Eckes-Granini. Ntv. Zugriff am 11.1
 
 O.V. (2019). Content Marketing. Gründerszene. Zugriff am 11.10.2019 unter https://www.gruenderszene.de/lexikon/begriffe/content-marketing?interstitial_click
 
-[Hier ist mein Professor](https://ulrich-anders.eu)
+[Hier gelangen Sie zur Webseite meines Professors der CBS](https://ulrich-anders.eu)
