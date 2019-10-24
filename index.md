@@ -1,6 +1,6 @@
-# Ist ein gewagtes und provozierendes Content-Marketing das richtige Werkzeug, um Aufmerksamkeit und Unternehmenserfolg erzielen zu können?
+# Ist ein gewagtes und provozierendes Content-Marketing das richtige
 
-![Pferde](01.jpeg)
+# Werkzeug, um Aufmerksamkeit und Unternehmenserfolg erzielen zu können?
 
 ![truefruits](truefruits1.jpg)
 
