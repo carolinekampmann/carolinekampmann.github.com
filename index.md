@@ -1,6 +1,7 @@
 # Ist ein gewagtes und provozierendes Content-Marketing das richtige Werkzeug, um Aufmerksamkeit und Unternehmenserfolg erzielen zu können?
 
 ![truefruits](truefruits1.jpg)
+Abbildung True Fruits Smoothies (t-online)
 
 # Einleitung
 
@@ -65,5 +66,7 @@ Merx,S (2016). So tickt das Smoothie-Start-up True Fruits .Creditreform Unterneh
 O.V. (2018). True Fruits verkauft Anteile an Eckes-Granini. Ntv. Zugriff am 11.10.2019 unter https://www.n-tv.de/wirtschaft/True-Fruits-verkauft-Anteile-an-Eckes-Granini-article20370082.html
 
 O.V. (2019). Content Marketing. Gründerszene. Zugriff am 11.10.2019 unter https://www.gruenderszene.de/lexikon/begriffe/content-marketing?interstitial_click
+
+Abbildung (2019). So geht True Fruits mit Rassismus-Vorwürfen um. t-online. Zugriff am 24.10.2019 unter https://www.google.de/amp/s/www.t-online.de/finanzen/boerse/news/id_85274240/tid_amp/so-geht-true-fruits-mit-rassismus-vorwuerfen-um.html
 
 [Hier gelangen Sie zur Webseite meines Professors der CBS](https://ulrich-anders.eu)
