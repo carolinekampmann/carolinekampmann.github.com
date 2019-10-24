@@ -2,13 +2,9 @@
 
 ![Pferde](01.jpeg)
 
-Nulla exercitation incididunt velit sunt nostrud cillum sunt cupidatat.
-Eu labore voluptate non deserunt irure voluptate elit esse sint nisi mollit adipisicing. Et ex pariatur ut irure eu tempor pariatur ea mollit. Non mollit ut culpa cillum occaecat dolore do nisi esse cillum labore. Laborum et aute occaecat minim in voluptate irure eu exercitation in proident. Sit ipsum et sit anim qui officia qui aliquip sit qui labore eiusmod.
-
-Ex amet consequat dolor velit dolore cupidatat cupidatat id. Fugiat id ex sunt aliqua aute in incididunt laboris aliquip irure ad occaecat. Consectetur cillum cupidatat cupidatat velit aliqua anim. Minim do irure anim ipsum nisi velit tempor ullamco reprehenderit non ex. Nostrud in eiusmod tempor magna. Commodo anim voluptate adipisicing elit ea enim elit amet elit sit. Reprehenderit ullamco eiusmod quis occaecat velit.
-
-Occaecat aliqua dolore sit do cupidatat elit do minim tempor aliquip. Lorem consequat laboris laboris sint proident enim culpa eu amet. Aliqua cillum Lorem anim anim nisi proident esse nostrud. Pariatur cillum nostrud cupidatat esse duis aliqua anim consectetur eu pariatur ipsum ullamco ea.
-
-Fugiat aute aliquip ipsum ea. Nisi in esse consectetur sunt fugiat consequat nulla velit laboris. Commodo sunt consequat anim enim minim non nisi. Ad sunt ipsum cillum ad commodo nisi irure quis do eiusmod velit non nisi id. Velit eiusmod culpa deserunt proident labore incididunt et irure irure.
-
-Et amet est laborum ut aliqua cillum. Aute ut proident in enim cupidatat ut laboris sint in ullamco est. Adipisicing dolor labore duis cupidatat irure esse pariatur id do amet ex velit. Eiusmod laborum ad eu nostrud tempor sint voluptate.
+Im Content-RADAR Modell lässt ich das Content-Marketing von True Fruits in die Rubrik Spaß und Unterhaltung zuordnen. Das Unternehmen erzielt durch starke sexistische und rassistische Provokation Aufmerksamkeit der Zielgruppe. In diesem Zuge steht das Unternehmen auch in den sozialen Medien ständig in der Kritik, wobei True Fruits damit genauso mutig umgeht, wie mit dem verbreiteten Content. Ein Beispiel für die sexistische angewendete Rhetorik ist beispielsweise der Aufdruck auf der Yellow-Chai-Flasche „Oralverzehr - schneller kommst Du nicht zum Samengenuss“. Ein weiteres Beispiel für die Kritik gegen Diskriminierung, stellt der weiße Smoothie in einer schwarzen Flasche mit dem Werbespruch „Schafft es selten über die Grenze“ dar. 
+Auf die Kritik antwortet das Unternehmen in der Öffentlichkeit, weiterhin auf eine sarkastische und trockene Art und Weise und schafft somit einen einheitlichen Unternehmensauftritt. 
+Aufmerksamkeit hat das Unternehmen mit dem produzierten Content alle male erreicht, auch durch die weiter laufenden Kampagnen und Produktneuheiten steht True Fruits immer wieder im Fokus der Öffentlichkeit und steigert seine Markenbekanntheit (Kurianowicz,2019). 
+Die provozierende aber einheitliche Präsentation nach außen, wirkt allerdings nicht auf alle Handelspartner wie Rewe positiv. Eine neue Produktneuheit mit dem dazu produzierten Content, wollte Rewe schlicht und weg nicht vertreten. Aber das Unternehmen True Fruits erzielt weiterhin Erfolg, denn durch diese Situation steigt die Begehrlichkeit und Exklusivität der Produkte. Mittlerweile werden gewisse Produkte aus dem Sortiment, auf Ebay zu hohen Preisen gehandelt. Nicht um sonst, steht das Unternehmen oft in der Kritik und man hinterfragt den Leitgedanke des Unternehmen (Lettau, 2017).
+Aber eins steht fest: True Fruits ist mit einem Jahresumsatz in 2017 von 43 Millionen Euro und einer Beteiligung von dem Unternehmen Eckes-Granini erfolgreich unterwegs. 
+Und hat es geschafft, durch einen einheitlichen und umfassenden Content, abgestimmt auf die Zielpersonen und den Nutzen des Produkts, im Markt aufzufallen (ntv,2018). 
